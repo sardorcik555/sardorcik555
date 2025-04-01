@@ -20,5 +20,5 @@ What I Do
 I also share my projects on **Instagram**! Feel free to check them out and connect with me:  
 📷 **Instagram:** [@xudoyberdiyevv17_](https://www.instagram.com/xudoyberdiyevv17_)
 <a href= "https://www.instagram.com/xudoyberdiyevv17_">
-<img src="https://i.pinimg.com/736x/ba/aa/7e/baaa7eeafea2827357d30fb5ae2cb2cf.jpg" width="30px">
+<img src="https://img.freepik.com/free-psd/instagram-application-logo_23-2151544100.jpg?semt=ais_hybrid" width="30px">
 </a>
